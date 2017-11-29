@@ -1,4 +1,4 @@
-<!-- TITLE: Beeldvorming Borstkanker Verhoogd Risico -->
+<!-- TITLE: Beeldvorming Borstkanker Hoog Risico -->
 <!-- MEER TREFWOORDEN: adviserend arts ziekenfonds formulier tegemoetkoming -->
 
 [Hoogrisicoborstkanker beeldvorming attest](/uploads/bestanden/hoogrisicoborstkanker.doc "Hoogrisicoborstkanker")
